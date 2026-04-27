@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-04-27 23:10 IR
+- 🎬 [「TO BE HERO X」コンセプトムービー（Long ver.）／bilibili × Aniplex 新プロジェクト.mp4](https://github.com/Yyclodyy/sandbox/raw/main/dl/%E3%80%8CTO%20BE%20HERO%20X%E3%80%8D%E3%82%B3%E3%83%B3%E3%82%BB%E3%83%97%E3%83%88%E3%83%A0%E3%83%BC%E3%83%93%E3%83%BC%EF%BC%88Long%20ver.%EF%BC%89%EF%BC%8Fbilibili%20%C3%97%20Aniplex%20%E6%96%B0%E3%83%97%E3%83%AD%E3%82%B8%E3%82%A7%E3%82%AF%E3%83%88.mp4) `21.1MB`
+
+---
+
+
 ### 📅 2026-04-27 23:06 IR
 - 🗜️ [Ultimate Vampire Crawlers Beginner's guide.mp4.zip](https://github.com/Yyclodyy/sandbox/raw/main/dl/Ultimate%20Vampire%20Crawlers%20Beginner%27s%20guide.mp4.zip) `4.4MB`
 
